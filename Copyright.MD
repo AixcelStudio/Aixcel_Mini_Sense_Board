@@ -1,0 +1,1 @@
+Aixcel_Mini_Sense_Board © 2022 by Aixcel is licensed under CC BY-SA 4.0
